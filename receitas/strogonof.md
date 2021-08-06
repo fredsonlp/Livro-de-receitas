@@ -24,9 +24,9 @@
 
 
 
- 
 
-**Moto de Preparo**
+
+**Modo de Preparo**
 
 1        Em uma panela a fogo médio, acrescente o óleo eo caldo de galinha e dissolva o caldo. Logo em seguida coloque o frango picadoem cubos na panela e deixe cozinhar. Sempre dando uma olhadinha para nãoqueimar.
 
